@@ -1,1 +1,0 @@
-# RogovAndrey_PR_31
